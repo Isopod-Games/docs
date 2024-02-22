@@ -39,7 +39,7 @@ We may update this Privacy Policy to reflect changes in our practices. When we m
 
 ## Contact Us
 
-If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at: \
+If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at:
 > Email: \
 > &emsp; hello@isopodgames.com \
 >  \
